@@ -1,4 +1,4 @@
-# Hi, There Fellow Hacker / Coder
+# Hi, There Fellow Coder
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=25&duration=3000&pause=3000&color=00FF28&width=880&lines=No+technology+that's+connected+to+internet+is+unhackable.)](https://git.io/typing-svg)
 <div>
